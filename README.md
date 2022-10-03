@@ -1,7 +1,7 @@
-- 👋 hola gay soy Anthony
+- 👋 Hi I Am rain Foggy
 - 👀 estoy interesado en dibujar
 - 🌱 no Leo casi nada
-- 💞️ my Love its Rocky 
+- 💞️ my Love its Turrón
 - 📫 discord
 
 *･ﾟﾟ･*:.｡..｡.:*ﾟ:*:✼✿▨  ➷🍥  ▨✿✼:*ﾟ:.｡..｡.:*･ﾟﾟ･*
